@@ -1,1 +1,1 @@
-i love you, please bemy valentine <3
+i love you, please be my valentine <3
